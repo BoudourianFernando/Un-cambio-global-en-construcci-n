@@ -1,1 +1,2 @@
-# Un-cambio-global-en-construcci-n
+# Un-cambio-global-en-construcción
+La Iniciativa del Cinturón y la Ruta liderada por China está redefiniendo el comercio internacional mediante inversiones en infraestructura que conectan continentes. Esta transformación global abre oportunidades económicas para países en desarrollo, promoviendo el crecimiento y la integración. Sin embargo, los riesgos de endeudamiento y la dependencia financiera plantean desafíos significativos. El equilibrio entre desarrollo y sostenibilidad será crucial para su éxito.
